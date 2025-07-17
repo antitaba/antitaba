@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.pinimg.com/736x/27/8b/de/278bde35be4ab061c66f540999e62883.jpg"/>
+  <img src="https://media1.tenor.com/m/zUPU_IViIzkAAAAd/connorgifsoicanfindit-persona-5.gif"/>
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/writersinthedark)ㅤㅤ[ata](https://antikechi.atabook.org)ㅤㅤ[pronouns page](https://en.pronouns.page/@inkpotgods)
