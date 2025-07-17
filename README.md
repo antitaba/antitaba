@@ -4,4 +4,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/writersinthedark)ㅤㅤ[ata](https://antikechi.atabook.org)ㅤㅤ[pronouns page](https://en.pronouns.page/@inkpotgods)
 
-ㅤㅤㅤㅤrest is a wip, rentry is a placeholder
+YES i will eventually finish my socials, sign my ata for $1 dollar and some yuri/yaoi of ur choosing (im NOT lying!! ok?)
